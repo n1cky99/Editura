@@ -1,1 +1,1 @@
-.
+Editura
